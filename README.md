@@ -1,0 +1,2 @@
+# Ingineria_Programarii
+IP24_2A2_Burlacu-Matei_Adelin-Cojocaru
